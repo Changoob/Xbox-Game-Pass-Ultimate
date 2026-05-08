@@ -36,7 +36,7 @@ Ngoài ra, việc kích hoạt gói này còn giúp hoàn thành nhiệm vụ tr
 
 ### Bước 1: Truy cập trang Xbox Game Pass Ultimate
 
-[Xbox Game Pass Ultimate](https://www.xbox.com/xbox-game-pass/ultimate?utm_source=chatgpt.com)
+[Xbox Game Pass Ultimate](https://rewards.bing.com/welcome?rh=2B7872FE&ref=rafsrchae)
 
 ---
 
